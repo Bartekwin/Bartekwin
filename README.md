@@ -1,3 +1,3 @@
-- 👋 Hi, Bartłomiej Winiarek 
+- Bartłomiej Winiarek 
 - NR albumu 21438
 
